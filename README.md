@@ -71,8 +71,8 @@
 <br/>
 
 🔗 **LinkedIn:**  
-<a href="https://www.linkedin.com/in/soumyadeep-basak-7609b2283/">
-  https://www.linkedin.com/in/soumyadeep-basak-7609b2283/
+<a href="https://www.linkedin.com/in/soumyadeep-basak-120a53279/">
+  https://www.linkedin.com/in/soumyadeep-basak-120a53279/
 </a>
 
 </div>
